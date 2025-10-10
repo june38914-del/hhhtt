@@ -1,0 +1,2 @@
+# I-TYPEKOTO-
+Voice typing 
